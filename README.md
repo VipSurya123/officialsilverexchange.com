@@ -1,1 +1,1 @@
-# officialsilverexchange.com
+# officialdiamondexchange
